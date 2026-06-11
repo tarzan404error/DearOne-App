@@ -1,4 +1,4 @@
-# DearOne [Download Latest APK]([https://github.com/USERNAME/REPO/releases/latest](https://github.com/tarzan404error/DearOne-App/releases/download/v1.0.0/DearOne.apk))
+# DearOne [Download Latest APK](https://github.com/tarzan404error/DearOne-App/releases/download/v1.0.0/DearOne.apk)
 
 **Never Miss a Special Moment ❤️**
 
